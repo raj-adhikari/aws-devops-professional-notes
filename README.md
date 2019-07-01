@@ -165,5 +165,5 @@ https://docs.google.com/document/d/17Me8cFPrDxfxqagcoTZTrh1VJQ5MuJTdPQ1qnftOuUQ/
 # Important Points
 https://docs.google.com/document/d/1NvNNq0Zx-8JAx1xWsTTF3ELXcR-eHuEXPKs1ph3vwkI/edit?usp=sharing
 
-# Links
+# Links to read
 https://docs.google.com/document/d/1wkAEg40QmcdnG_OqO7sAllEOFuCSpZm6jApg0CtXKBM/edit?usp=sharing
